@@ -1,1 +1,1 @@
-# Gere-Kov-cs-D-vid
+# Gere-Kovacs-David
